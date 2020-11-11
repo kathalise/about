@@ -1,1 +1,1 @@
-# about
+# Hey, I'm Katharina!
