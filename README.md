@@ -1,2 +1,2 @@
-# Hey, I'm Katharina!
-Welcome to my GitHuh profile.
+# Hey there, I'm Katharina!
+Welcome to my GitHub profile. 
